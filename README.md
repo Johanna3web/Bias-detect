@@ -73,5 +73,4 @@ Use the bias results to:
 
 **Malehu Johanna Segoapa (Khutso)**
 Digital Associate at Capaciti
-Business Management (N6), Gauteng City College
 Contact: [johannasegoapa@gmail.com](mailto:johannasegoapa@gmail.com)
